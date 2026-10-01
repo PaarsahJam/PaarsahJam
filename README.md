@@ -164,9 +164,9 @@ My approach is to learn by **understanding the underlying concepts, implementing
 
 ### Paarsah Sorouri Jam
 
-📧 **Email:** [your-email@example.com](mailto:your-email@example.com)
+📧 **Email:** [your-email@example.com](paarsah.sorouri@gmail.com)
 
-💼 **LinkedIn:** [LinkedIn Profile](YOUR_LINKEDIN_URL)
+💼 **LinkedIn:** [LinkedIn Profile](www.linkedin.com/in/paarsah-sorouri-jam-2892922a2)
 
 📍 **Yerevan, Armenia**
 
